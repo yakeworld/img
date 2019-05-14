@@ -38,30 +38,30 @@ Dix-Hallpike试验和仰卧悬头位试验是临床最为常用的上半规管BP
 平坐位，耳石沉降到外半规管的多个位置，包括外半规管长臂侧和短臂侧，其中长臂侧底部平长，耳石可以散在分布。
 ####  上半规管
 平坐位，耳石沉降到上半规管长臂侧靠近壶腹嵴处，位置比较固定。
- ![](https://yakeworld.github.io/10716757-f696101647ada87f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+ ![](https://upload-images.jianshu.io/upload_images/10716757-f696101647ada87f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 半规管、椭圆囊各关键位置设置耳石
 
-![](https://yakeworld.github.io/10716757-57598c06a50034f1.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/10716757-57598c06a50034f1.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 在重力作用下，耳石沉降到低位。
 
 
 ### Dix-Hallpike试验分析
 
 
-![](https://yakeworld.github.io/10716757-57598c06a50034f1.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/10716757-57598c06a50034f1.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 A.平坐位，从后向前观察。后半规管结石位于长臂侧下臂近壶腹部和远壶腹部以及短臂侧；  外半规管结石位于长臂侧壶腹部、后臂、后臂靠近椭圆囊开口处、椭圆囊开口处和短臂侧；上半规管结石位于长臂侧壶腹部；椭圆囊内的结石位于椭圆囊后侧。
 
-![](https://yakeworld.github.io/10716757-9bfb09689a649ca7.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/10716757-9bfb09689a649ca7.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 B.向右侧转头45°
 
-![](https://yakeworld.github.io/10716757-b040be13e55999cb.gif?imageMogr2/auto-orient/strip)
+![](https://upload-images.jianshu.io/upload_images/10716757-b040be13e55999cb.gif?imageMogr2/auto-orient/strip)
 
 C.患者从坐位快速躺下至平卧右耳向下位置，头部后仰30°。  后向前观察。
 
  
-![](https://yakeworld.github.io/10716757-a4728ad2f465e144.gif?imageMogr2/auto-orient/strip)
+![](https://upload-images.jianshu.io/upload_images/10716757-a4728ad2f465e144.gif?imageMogr2/auto-orient/strip)
 
 D. 患者从坐位快速躺下至平卧右耳向下位置，头部后仰30°。 侧面观察。
 
@@ -101,11 +101,11 @@ D. 患者从坐位快速躺下至平卧右耳向下位置，头部后仰30°。 
  ### 仰卧悬挂头位试验分析
 
 
-![](https://yakeworld.github.io/10716757-57598c06a50034f1.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/10716757-57598c06a50034f1.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 A.平坐位，从后向前观察。后半规管结石位于长臂侧下臂近壶腹部和远壶腹部以及短臂侧；  外半规管结石位于长臂侧壶腹部、后臂、后臂靠近椭圆囊开口处、椭圆囊开口处和短臂侧；上半规管结石位于长臂侧壶腹部；椭圆囊内的结石位于椭圆囊后侧。
 
-![](https://yakeworld.github.io/10716757-24da2a65928d3957.gif?imageMogr2/auto-orient/strip)
+![](https://upload-images.jianshu.io/upload_images/10716757-24da2a65928d3957.gif?imageMogr2/auto-orient/strip)
 
 
 B. 从坐位快速躺下至平卧位，头部后仰和水平面成30°角
