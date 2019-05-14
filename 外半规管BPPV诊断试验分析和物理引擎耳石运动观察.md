@@ -78,29 +78,29 @@
 
 7.步骤D强烈眼震考虑耳石重新进入外半规管
 
- ![平坐位初始耳石设置]https://yakeworld.github.io/img/10716757-77ea7ab043396d55.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+ ![平坐位初始耳石设置](https://yakeworld.github.io/img/10716757-77ea7ab043396d55.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 a. 平座位在外半规管各个主要位置和椭圆囊内多处设置耳石
 
 
-![重力作用下最后耳石沉降的位置]https://yakeworld.github.io/img/10716757-0a1f36cf50719d78.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![重力作用下最后耳石沉降的位置](https://yakeworld.github.io/img/10716757-0a1f36cf50719d78.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 A. 在重力作用下，外半规管内的耳石沉降到最低处，包括1.短臂侧（壶腹部靠椭圆囊侧）2.长臂侧壶腹部 3. 前臂4.后臂5.后臂靠近椭圆囊开口处 6. 后臂椭圆囊开口处；椭圆囊内的耳石沉降到最低处，包括7.后半规管短臂侧和8.椭圆囊后侧。
 
 
-![平卧位耳石沉降过程]https://yakeworld.github.io/img/10716757-f8127a93640214a9.gif?imageMogr2/auto-orient/strip)
+![平卧位耳石沉降过程](https://yakeworld.github.io/img/10716757-f8127a93640214a9.gif?imageMogr2/auto-orient/strip)
 
 B.平卧位，头部抬高25°。外半规管的结石在重力作用下离壶腹或向壶腹沉降到后臂，壶腹部结石仍在原位。
 
 
-![右侧卧位耳石运动过程]https://yakeworld.github.io/img/10716757-a698e9244d4b4218.gif?imageMogr2/auto-orient/strip)
+![右侧卧位耳石运动过程](https://yakeworld.github.io/img/10716757-a698e9244d4b4218.gif?imageMogr2/auto-orient/strip)
 
 C.向右侧转头90°/右侧卧位，可导致左侧外半规管后臂和短臂侧结石复位，还可以引起右侧外半规管短臂侧结石症。
 
 
-![D. 回复到平卧位]https://yakeworld.github.io/img/10716757-428e4b2bfb13d590.gif?imageMogr2/auto-orient/strip)
+![D. 回复到平卧位](https://yakeworld.github.io/img/10716757-428e4b2bfb13d590.gif?imageMogr2/auto-orient/strip)
 D.回复到平卧位，可以引起左侧外半规管长臂侧结石症，其来源包括左侧外半规管短臂侧结石。
 
-![E. 向左侧转头90°]https://yakeworld.github.io/img/10716757-d10a3f67ec7e26e5.gif?imageMogr2/auto-orient/strip)
+![E. 向左侧转头90°](https://yakeworld.github.io/img/10716757-d10a3f67ec7e26e5.gif?imageMogr2/auto-orient/strip)
 
 E. 向左侧转头90°/左侧卧位，可以使得右侧外半规管后臂和短臂侧结石复位，还可以引起左侧外半规管长臂侧结石症。
 
